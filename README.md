@@ -4,8 +4,8 @@
 
 - 🔭 I’m currently working on self improvement
 - 🌱 I’m currently learning C++
-- 👯 I’m looking to collaborate with Khushi gupta
-- 🤔 I’m looking for help for Khushi gupta
+- 👯 I’m looking to collaborate with Ratan tata
+- 🤔 I’m looking for help for Khushi Tanvi
 - 💬 Ask me about Fitness
 - 📫 How to reach me: Linkedin
 - 😄 Pronouns: HE,HIM,HIS
